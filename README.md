@@ -1,1 +1,0 @@
-# nurkans.github.io
